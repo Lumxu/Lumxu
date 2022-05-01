@@ -1,4 +1,4 @@
-##  Yo, I’m @Lumxu
+##  Yo, I’m @TheW
 
 👀 I’m interested in coding
 
