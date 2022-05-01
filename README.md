@@ -1,4 +1,4 @@
-##  Yo, I’m @TheW
+##  Yo, I’m TheW
 
 👀 I’m interested in coding.
 
